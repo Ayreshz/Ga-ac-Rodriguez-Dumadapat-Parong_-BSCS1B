@@ -1,1 +1,1 @@
-# Ga-ac-Rodriguez-Dumadapat-Parong
+# Gañac-Rodriguez-Dumadapat-Parong
